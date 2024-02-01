@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iruu-hub
 - 👀 I’m interested in reading
-- 📫 How to reach me @btw_its.iruuInstagram
+- 📫 How to reach me @btw_its.iruu  Instagram
 - 
 
 <!---
